@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there 👋<br><br>Nice meeting you, I'm Saban!<br><br>🔭 I’m currently pursuing Btech CSE<br>💬 Ask me about Web development related stuff<br>📫 How to reach me: LinkedIn - @sharma-aman2510<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
+Hi there 👋<br><br>Nice meeting you, I'm Aman!<br><br>🔭 I’m currently pursuing Btech CSE<br>💬 Ask me about Web development related stuff<br>📫 How to reach me: LinkedIn - @sharma-aman2510<br>😄 Pronouns: He/His<br>⚡ Fun fact: If I am not coding then I am probably playing games with my friends
 
 
 ## 🌐 Socials:
